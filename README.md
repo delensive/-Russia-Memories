@@ -1,4 +1,4 @@
-🇷🇺 Russia Memories
+🇷🇺 Russia
 
 <img width="1920" height="2560" alt="image" src="https://github.com/user-attachments/assets/1df89ec0-7864-4a34-9cf5-e141de03c552" />
 
